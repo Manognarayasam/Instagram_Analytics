@@ -37,3 +37,14 @@ Analysis:
 ![Picture4](https://github.com/user-attachments/assets/2c9d950e-3be4-4779-b319-d333260c3d62)                      ![Picture1](https://github.com/user-attachments/assets/efce8eac-199e-4739-a73f-32689fa7be3d)
 
 
+![Picture5](https://github.com/user-attachments/assets/767114b7-7fb7-409a-b70a-322d6f1787c3)                      ![Picture6](https://github.com/user-attachments/assets/bd31c018-7933-420e-bebc-283752f1604b)
+
+![Picture7](https://github.com/user-attachments/assets/f2eb11f0-609b-43e6-a304-27453b44bd78)
+
+
+
+**Conclusion**
+I would like to tell that after doing a thorough
+analysis we were able to derive the insights from the data
+and was able to get the desired results . 
+How the users of the Instagram are using the platform for the publicity.
